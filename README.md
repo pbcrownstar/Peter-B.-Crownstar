@@ -1,4 +1,4 @@
-# Peter-B.-Crownstar
+# Peter-B-Crownstar
 
 # Hey! I'm Peter Benjamin Crownstar
 
